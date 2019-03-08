@@ -26,6 +26,8 @@
 
 - [Fususu'l-Hikem](https://www.kitapyurdu.com/index.php?route=product/product&product_id=129925) - Muhyiddin İbn Arabi
 
+- [Yeni Tanrılar](https://www.kitapyurdu.com/kitap/yeni-tanrilar/493680.html&manufacturer_id=7105) - Emil Michel Cioran 
+
 
 
 -to be continued...
