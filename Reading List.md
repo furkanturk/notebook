@@ -20,4 +20,12 @@
 
 - [The Unbearable Lightness of Being](https://www.amazon.com/Unbearable-Lightness-Being-Perennial-Classics/dp/0061148520/ref=sr_1_1?keywords=The+Unbearable+Lightness+of+Being&qid=1552075618&s=books&sr=1-1) - Milan Kundera 
 
+- [Drive: The Surprising Truth About What Motivates Us](https://www.amazon.com/Drive-Surprising-Truth-About-Motivates/dp/1594484805/ref=sr_1_1?keywords=drive&qid=1552075706&s=books&sr=1-1) - Daniel H. Pink
+
+- [Kendini Aramak](https://www.kitapyurdu.com/kitap/kendini-aramak/354057.html) - İhsan Fazlıoğlu
+
+- [Fususu'l-Hikem](https://www.kitapyurdu.com/index.php?route=product/product&product_id=129925) - Muhyiddin İbn Arabi
+
+
+
 -to be continued...
