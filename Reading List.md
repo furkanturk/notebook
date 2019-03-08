@@ -16,4 +16,8 @@
 
 - [The Checklist Manifesto: How to Get Things Right](https://www.amazon.com/s?k=checklist+manifesto&i=stripbooks-intl-ship&crid=2IYAD8XSZWT2X&sprefix=check%2Cstripbooks-intl-ship%2C245&ref=nb_sb_ss_i_1_5) - Atul Gawande 
 
+- [The Swerve: How the World Became Modern](https://www.amazon.com/gp/product/0393343405/ref=dbs_a_def_rwt_hsch_vapi_taft_p1_i2) - Stephen GreenBlat 
+
+- [The Unbearable Lightness of Being](https://www.amazon.com/Unbearable-Lightness-Being-Perennial-Classics/dp/0061148520/ref=sr_1_1?keywords=The+Unbearable+Lightness+of+Being&qid=1552075618&s=books&sr=1-1) - Milan Kundera 
+
 -to be continued...
